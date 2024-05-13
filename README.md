@@ -1,3 +1,2 @@
 # notes
 frank lee
-liejdogn
